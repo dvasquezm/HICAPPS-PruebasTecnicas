@@ -1,4 +1,0 @@
-# Historia de Flash
-
-
-texto
